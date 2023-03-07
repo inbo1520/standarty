@@ -1,0 +1,1 @@
+IEEE (Institute of Electrical and Electronic Engineers, Институт инженеров по электротехнике и электронике) — профессиональная международная организация.
